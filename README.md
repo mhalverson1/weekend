@@ -7,3 +7,4 @@ course marshall at son's xc race
 bike ride
 
 # Sunday
+church
